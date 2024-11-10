@@ -1,1 +1,1 @@
-
+[Senstar]([https://usa.nissannews.com/en-US/releases/nissan-adds-intersection-collision-avoidance-to-its-in-development-lidar-based-driver-assistance-technology](https://senstar.com/products/fence-sensors/senstar-lm100/))
